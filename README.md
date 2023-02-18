@@ -1,1 +1,0 @@
-# ssctyping.github.io
